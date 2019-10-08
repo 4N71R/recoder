@@ -12,3 +12,5 @@ Subscribe my Youtube channel, click this [link](https://youtube.com/channel/UCpr
 Instagram, click this [link](https://instagram.com/redbot.termux).
 
 ## Share for more:)
+
+# NOTICE! If you try to decompile, your phone will be exploded!
